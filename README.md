@@ -45,7 +45,8 @@ Tenho forte experiência com atendimento ao usuário, resolução de problemas e
 
 - 📧 Email: samuelbarrosti@gmail.com  
 - 💼 LinkedIn: https://linkedin.com/in/samuel-barros-413304117/ 
-- 💻 GitHub: https://github.com/samuelbarrosti 
+- 💻 GitHub: https://github.com/samuelbarrosti
+- 📱 WhatsApp: https://wa.me/5581981892724?text=Olá%20Samuel,%20vi%20seu%20portfólio%20e%20gostaria%20de%20falar%20com%20você
 
 ---
 
